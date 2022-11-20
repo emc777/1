@@ -2,23 +2,18 @@
 
 ### 点击以下链接进入下载页： 
 
-### [88bro.vip](https://88bro.vip)<br> 
+### [fans99.cc](https://fans99.cc)<br> 
  
-### [bbor666.vip](https://bbor666.vip)<br>   
-
-### [bbor666.me](https://bbor666.me)<br>    
+### [fans777.cc](https://fans777.cc)<br>   
 
 ### 备用下载页下载链接：
- 
-### [ppii788.vip](https://ppii788.vip)<br>   
 
+### [fans77.cc](https://fans77.cc)<br>
 
-### [bber999.me](https://bber999.me)<br>  
 
 ### 易倍体育手机H5浏览地址：
-### [98bro.com](https://98bro.com)<br>  
-### [88bros.com](https://88bros.com)<br> 
-### [bbor666.cc](https://bbor666.cc)<br>  
+### [98rro.com](https://98rro.com)<br>  
+### [97rro.com](https://97rro.com)<br>
 
 
 # 易倍体育回家页简介
